@@ -4,4 +4,4 @@
 -- Dm la andrew_dxz2 sau qa7244 daca aveti probleme.
 
 
--- Server de discord: ?? --
+-- Server de discord: https://discord.gg/Ge8dcyQJ82 --
