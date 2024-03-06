@@ -2,3 +2,6 @@
 -- Nu uitati de TOKENE
 -- Enjoy
 -- Dm la andrew_dxz2 sau qa7244 daca aveti probleme.
+
+
+-- Server de discord: ?? --
